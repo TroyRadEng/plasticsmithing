@@ -13,3 +13,6 @@ best idea:
 4.) get an ink pad
 5.) ink the studs of one lego onto the bottom of another
 6.) use this as a guide to drill holds on the bottom to receive the studs
+
+actually just do this in a plaster mold:
+http://www.instructables.com/id/HomemadePlastic/
